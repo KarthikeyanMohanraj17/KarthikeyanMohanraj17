@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KarthikeyanMohanraj17
+- 👋 Hi, I’m @Karthikeyan Mohanraj
 
 
 <!---
